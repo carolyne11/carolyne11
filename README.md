@@ -9,9 +9,6 @@
 ## 🚀 Sobre mim
 - 🌱 Sempre aprendendo novas ferramentas e linguagens.  
 - 💡 Curiosa por entender como os dados podem contar histórias e gerar impacto real.  
-- 🎨 Interesse em **design**, **jogos** e **criatividade digital**.  
-- ☕ Amante de café e boas ideias!
-
 ---
 
 ## 🛠️ Tecnologias & Ferramentas
