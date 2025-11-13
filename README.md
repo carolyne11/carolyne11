@@ -43,8 +43,8 @@
 ---
 
 ## 📫 Como me encontrar
-📧 **E-mail:** seuemail@exemplo.com  
-🌐 [LinkedIn](https://linkedin.com/in/seu-perfil) • [GitHub](https://github.com/carolyne11)
+📧 **E-mail:** xaviercarolyne36@gmail.com
+🌐 [LinkedIn](https://www.linkedin.com/in/carolyne-xavier-913721297/) 
 
 ---
 
